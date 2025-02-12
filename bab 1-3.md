@@ -82,3 +82,28 @@ Roma tersenyum dalam hati. Meski kecil, ini adalah pencapaian besar. Jika ia bis
 Ia masih bayi, tetapi ia memiliki kesadaran penuh. Itu adalah keunggulan yang tak bisa diremehkan.
 
 Hari-harinya mungkin panjang, tetapi Roma yakin—ia akan memanfaatkan setiap detiknya untuk berkembang.
+
+---
+
+### **Bab 3: Cahaya dan Bayangan**
+
+Beberapa bulan berlalu. Roma mulai bisa membuka matanya lebih lama, dan penglihatannya semakin jelas. Awalnya hanya melihat bayangan kabur, tetapi kini ia bisa membedakan wajah ibunya dan ayahnya.
+
+Suatu hari, ia melihat sesuatu yang menarik. Cahaya dari jendela kamar menerobos masuk, menciptakan pola bayangan di lantai kayu. Roma, yang mulai penasaran, mengulurkan tangan mungilnya mencoba meraihnya.
+
+> **[Skill diperoleh: Curiosity Lv.1]**
+> Rasa ingin tahu meningkat, mempercepat pembelajaran dari lingkungan.
+
+Ia mulai lebih banyak menggerakkan tubuhnya. Dari sekadar menggerakkan jari hingga mencoba mengangkat kepalanya saat tengkurap. Awalnya terasa berat, tetapi setiap usaha memberikan kemajuan.
+
+Setelah beberapa minggu mencoba, ia akhirnya berhasil mengangkat kepalanya tanpa goyah.
+
+> **[Skill diperoleh: Neck Strength Lv.1]**
+> Mampu menahan kepala dengan lebih baik, meningkatkan kontrol tubuh bagian atas.
+
+Roma mulai menyadari bahwa semua yang ia lakukan berujung pada perolehan skill baru. Dunia ini benar-benar mengikuti sistem yang mirip dengan game.
+
+Dengan rasa ingin tahu yang semakin besar, Roma menatap ke luar jendela, menyaksikan dunia yang luas menantinya.
+
+Petualangannya baru saja dimulai…
+
